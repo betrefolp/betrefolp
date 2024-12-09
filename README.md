@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...da
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...ads
+- 📫 How to reach me ...adsrte
 - 😄 Pronouns: ...4ytf456
 - ⚡ Fun fact: ...53995
 sdf
