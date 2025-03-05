@@ -1,6 +1,6 @@
 cfdewdhjmhjm114156- 👋 Hi, I’m @betrefolpdff
 - 👀 I’m interested in ...dabfg
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...ewe
 - 💞️ I’m looking to collaborate on ...526gfb1452
 - 📫 How to reach me ...adsrte8nm,hjeryujy
 - 😄 Pronouns: ...4ytf4561212r4468875rthhtr4gersdfsdfzxc
