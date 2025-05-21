@@ -1,7 +1,7 @@
 uvbvbnvbnvbewdfggdfcfdewdhjmhjm114156- 👋 Hi, I’m @betrefolpdff
-- 👀 I’m interested in ...dabfgdfbereff
-- 🌱 I’m currently learning ...ewe
-- 💞️ I’m looking to collaborate on ...526gfb1452dfgvcvcvcvgfbgfbfgbfgds
+- 👀 I’m interested in ...dabfgdfberefffew
+- 🌱 I’m currently learning ...ewewfeddd
+- 💞️ I’m looking to collaborate on ...526gfb1452dfgvcvcvcvgfbgfbfgbfgdswfe
 - 📫 How to reach me ...adsrte8nm,hjeryujy848bdfbfasnm,bfghnbsaaaererdfvdfwerwewutyutyut48dfb vcxcxcsfdsd
 - 😄 Pronouns: ...4ytf4561212r4468875rthhtr4gersdfsdfzxc362262fdsfdddffetrrr
 <!---5454sdf7887rgr6338588egrerfdassaddcds
